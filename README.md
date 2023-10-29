@@ -9,7 +9,7 @@
 
 ![tumblr_inline_msbv3u3zet1rkldve540](https://github.com/Bunnistar/Bunnistar/assets/145001684/34d6098c-2b85-43f6-8734-1ba91acb1672)・ᕱ⑅ᕱ・I hate people forcing me to do something that I'm not comfortable with, please don't and just respect that, it does heavily trigger me due to my past trauma stuff
 
-![tumblr_inline_msbv3u3zet1rkldve540](https://github.com/Bunnistar/Bunnistar/assets/145001684/34d6098c-2b85-43f6-8734-1ba91acb1672)・ᕱ⑅ᕱ・I tend to say and do triggering things on rare occassions due to past traumas and coping
+![tumblr_inline_msbv3u3zet1rkldve540](https://github.com/Bunnistar/Bunnistar/assets/145001684/34d6098c-2b85-43f6-8734-1ba91acb1672)・ᕱ⑅ᕱ・I tend to say and do triggering things on rare occasions due to past traumas and coping (I was a victim of gr//ming and p/dophilia irl so please go really **really** easy on me).
 
 ![tumblr_inline_msbv3u3zet1rkldve540](https://github.com/Bunnistar/Bunnistar/assets/145001684/34d6098c-2b85-43f6-8734-1ba91acb1672)・ᕱ⑅ᕱ・I'm open minded and neutral on separating fiction from reality due to people having different cultures and I'm preventing myself from experiencing cultural shock (my therapist also suggested this heavily to prevent possible schizophrenia spikes), though do limit triggering topics around me, sometimes it does trigger stuff
 
